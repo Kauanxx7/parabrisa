@@ -8,6 +8,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 # Você entrar em contato comigo 📫
 
-kauan.kai2escola.pr.gov.br
+kauan.kai@escola.pr.gov.br
 
 @Kauanxx7
